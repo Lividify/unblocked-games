@@ -1,2 +1,2 @@
-# unblockedgames
+# unblocked games
 play unblocked games!
